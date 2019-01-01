@@ -1,0 +1,2 @@
+# receitasparadiabeticos
+GitHub Pages
